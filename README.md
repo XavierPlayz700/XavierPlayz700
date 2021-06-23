@@ -4,9 +4,6 @@
 - 💞️ I’m looking to collaborate on anything related to coding and gaming
 - 📫 How to reach me - Discord Username and Tag : XavierPlayz700#1229
 
-<img src = "https://static.wikia.nocookie.net/danganronpa/images/8/8b/Danganronpa_V3_Kokichi_Oma_Halfbody_Sprite_%2811%29.png">
+<img src = "https://static.wikia.nocookie.net/danganronpa/images/8/8b/Danganronpa_V3_Kokichi_Oma_Halfbody_Sprite_%2811%29.png/revision/latest/scale-to-width-down/490?cb=20180506071232">
 
-<!---
-XavierPlayz700/XavierPlayz700 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Nee hee hee!
